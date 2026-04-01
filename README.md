@@ -16,6 +16,7 @@ Concluded: 04/01/2026
 10. [Populists, Poppy, and Mass Shootings](#Populists-Poppy-and-Mass-Shootings)
 11. [Respects Paid, After Inflation](#Respects-Paid-After-Inflation)
 12. [The Gossip Industry](#The-Gossip-Industry)
+13. [Kourtney Kooney's Tactic](#Kourtney-Kooneys-Tactic)
 
 
 ## Death to the Meddler
@@ -722,3 +723,61 @@ The information kept moving. The gossip kept circulating. The noise continued at
 Ronald had made a very loud sound in the middle of it.
 
 By the following news cycle, it had been largely absorbed.
+
+## Kourtney Kooney's Tactic
+
+Kourtney Kooney had a gift.
+
+Not the kind that gets recognised at school or celebrated at graduations or listed on a résumé. The other kind — the kind that operates below the threshold of institutional measurement, in the register of instinct and chemistry and the particular frequency that certain people broadcast on without knowing they're doing it. She could walk into a room and locate, within minutes, the man most susceptible to her specific variety of attention. She had been doing this for so long that it had stopped feeling like a skill and started feeling like breathing.
+
+She appeared sweet. This was not entirely an act — there was genuine warmth in her, genuine interest, genuine charm. The most effective versions of what she did always contain some truth. The smile was real. The attentiveness was real. The way she made a man feel, in her presence, like the most legible and appreciated version of himself — that was real too, in the sense that she genuinely produced it, even if its purpose was something he would not have consented to had he understood it clearly.
+
+She was, in the taxonomy of dangerous things, among the most dangerous kind: the kind that is also genuinely pleasant to be around.
+
+---
+
+The tactic had been refined over years of practice into something close to an art form.
+
+It began with tacos.
+
+This detail always surprised people when they eventually learned of it, which by the time they learned of it was too late for the information to be useful. Tacos seemed too mundane, too cheerful, too fundamentally innocent a vehicle for what followed. But Kourtney had understood something about food that most people only feel without articulating — that eating together is an act of lowered defences, that a man who is fed feels, however briefly, that the world means him well, that the simple pleasure of good food in good company creates a window of receptivity that is difficult to achieve through any other means on such short notice.
+
+She would buy the tacos warmly, generously, with the easy confidence of someone for whom generosity is habitual. The man would eat. The conversation would flow. The defences, already compromised by her charm, would soften further in the glow of a shared meal. She would watch the transition happen in their eyes — the slight relaxation, the forward lean, the specific quality of attention that meant the walls were down.
+
+Then she would excuse herself, move behind them with the unhurried naturalness of someone reaching for a napkin or retrieving a dropped item, and drive the knife into their back with the clean precision of long practice.
+
+She had many victims. All of them had loved her, in the accelerated, intoxicated way that her particular method produced. Several had, in their final moments, likely still loved her. This was the detail she found most interesting about her work, on the rare occasions she examined it.
+
+---
+
+Mariannas Isaacson was an anomaly in several respects.
+
+She despised tacos — not with the mild indifference of someone who simply doesn't seek them out, but with the active, principled aversion of a person who has considered the matter and arrived at a firm conclusion. Her preference was falafel, specifically, and she held this preference with the quiet conviction of someone who has located their particular place in the world of food and sees no reason to be moved from it.
+
+She was also, in terms of attraction, entirely uninterested in either men or women. Her specific orientation ran toward trans individuals, and it ran there exclusively and without apology. Kourtney Kooney's precise frequency — the one that had reliably found its receiver in every previous target — simply produced no signal in Mariannas. It was not that Mariannas resisted the charm. It was that the charm had nothing to attach to. It moved through her like radio through empty air.
+
+Kourtney Kooney, presented with this, experienced something she had not encountered before: the complete failure of her instrument. She offered the tacos. Mariannas declined without curiosity, mentioning the falafel preference with the mild directness of someone stating a fact about themselves. Kourtney recalibrated and tried the charm at a different angle. Nothing. She tried the warmth, the attentiveness, the specific quality of focused interest that had always, always worked. Mariannas received it politely and remained entirely herself — unflattered, uncompromised, faintly puzzled by the intensity of this stranger's social effort.
+
+The repulsion was not hostile. It was simply absolute.
+
+---
+
+It made Kourtney slip.
+
+The operational sequence she had performed dozens of times — the excuse, the movement, the positioning, the knife — came apart in the unfamiliar atmosphere of total resistance. Her hands knew the choreography but her mind had lost the thread. The spatial calculation she had always made without conscious thought, the automatic geometry of the act, went wrong in a way she didn't catch until it was too late to correct.
+
+She stabbed herself in the back.
+
+The angle was awkward. The execution was not clean. She went down in stages, with the expression of someone processing information that the body has delivered before the mind is ready to receive it.
+
+Mariannas looked down at her with the composed expression of someone who has witnessed something confusing and is waiting for it to make sense.
+
+It did not, immediately, make sense.
+
+The knife was where it was. Kourtney Kooney was on the floor. The tacos, untouched, sat on the table between them, going cold.
+
+Mariannas stepped over her, picked up her bag, and left to find a falafel place.
+
+Kourtney Kooney, the black widow in human form, the woman who had dispatched so many men from a position of warmth and false safety, died on the floor of her own elaborate staging — undone not by justice or detection or the resistance of a prepared adversary, but by the simple, total irrelevance of her gifts to one person who had not needed them, wanted them, or eaten the tacos.
+
+It was, in its way, the most honest ending available to her.
