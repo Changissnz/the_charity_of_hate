@@ -14,6 +14,7 @@ Concluded: 04/01/2026
 8. [The Ex Software Engineer](#The-Ex-Software-Engineer)
 9. [The Slav That Hated Johnson Brandon](#The-Slav-That-Hated-Johnson-Brandon)
 10. [Populists, Poppy, and Mass Shootings](#Populists-Poppy-and-Mass-Shootings)
+11. [Respects Paid, After Inflation](#Respects-Paid-After-Inflation)
 
 
 ## Death to the Meddler
@@ -582,3 +583,77 @@ Then he disemboweled himself — an act that managed, in its specific chosen for
 He dropped in the sawdust and the silence.
 
 Outside, it was still winter.
+
+## Respects Paid, After Inflation
+
+Song Ho-Chun Park was, by any honest measure, a remarkable man.
+
+His scientific knowledge was deep and self-directed — the kind built by someone who reads not because a curriculum demands it but because the alternative is to leave questions unanswered, which he found genuinely intolerable. His martial training had given him a physical discipline that complemented the mental one, a body that moved with the same precision he applied to problems. He had arrived in the United States at twenty with these things intact, and with the reasonable if naive expectation that they would count for something.
+
+They counted for less than he had anticipated.
+
+---
+
+The English was the first obstacle and the most persistent one.
+
+He had learned it academically, which meant he could read it and write it and construct grammatically sound sentences with it, but when it came out of his mouth it came out filtered through the phonological architecture of Korean in a way he could not fully control and could not make himself stop hearing. The accent was heavy. And there was something in the particular register of it — some quality of pitch or cadence or the specific way certain vowels landed — that American ears processed in a way Park had not been prepared for.
+
+Men who sounded like that, in the American social taxonomy, were coded in a specific way. The gay white men of his neighbourhood had apparently decided he was a version of them — exotic, available, interesting in the way that foreignness makes things briefly interesting — and approached him with a directness that Park found not flattering but violating. He was not what they saw when they looked at him. He did not know how to explain this in a way that his accent would not undermine. He became quiet instead.
+
+The blonde women laughed. Not always cruelly, not always consciously — sometimes it was just the reflex laughter of people who find something unexpected and respond before they've decided whether it's funny. But it happened consistently enough that Park had catalogued it, the way he catalogued most things that caused him sustained pain, until the catalogue itself became a weight he carried everywhere.
+
+He stopped speaking in public unless absolutely necessary.
+
+The silence grew.
+
+---
+
+His mother, contacted by a psychiatrist during his mid-twenties, had been instructed to ensure he took his medication. The diagnosis was clinical, the prescription specific. Park took the antipsychotics irregularly — sometimes for stretches of weeks, then not at all, in the pattern of someone who resents the implication of what the pills represent more than he fears what happens without them. During the periods off the medication his thinking developed a quality of heightened connection, a sense that things were more meaningfully related than they appeared on the surface. He found this clarity seductive even as some distant, functioning part of him recognised it as a symptom.
+
+He was bullied throughout his twenties in the specific way available to a man in his circumstances — not physically, mostly, but socially and professionally, in the accumulated small violences of being consistently misread, condescended to, propositioned when he wanted to be taken seriously, and laughed at when he wanted to be heard.
+
+The martyrdom complex, as the psychiatrist had noted in records that would later be recovered and analysed, had been developing for some time. The sense of a destiny thwarted. Of a value unrecognised. Of a specific greatness that the world had failed, through its own corruption and superficiality, to acknowledge.
+
+---
+
+He was alone on the evening it broke open.
+
+The television was on and the media was doing what media does — cycling through its roster of the celebrated, the successful, the institutionally approved faces of achievement. Terence Tao appeared on the screen. Mathematician. Prodigy. Widely described as one of the greatest mathematical minds alive.
+
+Park watched for a moment.
+
+Then something that had been under pressure for a long time found its release point.
+
+He pulled out the Desert Eagle and fired into the screen repeatedly, the shots loud in the small apartment, the television dying in stages. He stood in the ringing silence afterward and heard himself say it — *I deserve to be like Terence Tao* — and then heard what came after, the thing that had apparently been underneath the admiration all along, the resentment that had been quietly composting in the dark: *I am Korean. Tao is Chinese. Chinese. Too many Chinese in this world. Not valuable.*
+
+The logic was not logic. It was pain dressed in the clothing of ideology — the oldest substitution there is.
+
+He reloaded.
+
+---
+
+Chinatown was twenty minutes away.
+
+He moved through it with the Desert Eagle and killed twenty ethnic Chinese, two Arabs who were present by the accident of geography, and one Black man who had been in the wrong intersection at the wrong moment. The shooting had the quality of all such acts at the granular level — chaotic, loud, over faster than the survivors could later believe, leaving behind a stillness that felt obscene given what had preceded it.
+
+Park drove from Chinatown to the community college.
+
+The explosive vest took out a section of the main building's facade, leaving the gaping structural wound that the subsequent news footage would replay for days — a hole in the brick and glass that looked, from certain angles, almost purposeful, as though something had been trying to get out from inside.
+
+Park did not survive the detonation.
+
+---
+
+The manifesto was recovered intact.
+
+It was the document of a man who had spent years constructing, in private, a narrative of thwarted greatness that had gradually consumed the more grounded parts of his self-understanding. He wrote about his scientific gifts with the authority of someone who genuinely possessed them, which made the document more unsettling than the raving of someone entirely detached from reality. The gifts were real. The conclusion he had drawn from their non-recognition — that violence was the appropriate response, that others must pay the price of his obscurity — was the place where the illness and the pain and the years of accumulated humiliation had taken him somewhere he could not find his way back from.
+
+He had wanted to be Terence Tao.
+
+He had ended up in a federal evidence file instead, cross-referenced with a body count and a psychiatric history and the records of a prescription his mother had tried, inadequately, to ensure he filled.
+
+The inflation he had felt — of his own worth, of his own destiny, of the debt the world owed him — had compounded across years until it could no longer be contained.
+
+Respects, of a kind, had been paid.
+
+Not the kind he had wanted.
