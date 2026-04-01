@@ -15,6 +15,7 @@ Concluded: 04/01/2026
 9. [The Slav That Hated Johnson Brandon](#The-Slav-That-Hated-Johnson-Brandon)
 10. [Populists, Poppy, and Mass Shootings](#Populists-Poppy-and-Mass-Shootings)
 11. [Respects Paid, After Inflation](#Respects-Paid-After-Inflation)
+12. [The Gossip Industry](#The-Gossip-Industry)
 
 
 ## Death to the Meddler
@@ -657,3 +658,67 @@ The inflation he had felt — of his own worth, of his own destiny, of the debt 
 Respects, of a kind, had been paid.
 
 Not the kind he had wanted.
+
+## The Gossip Industry
+
+The Information Age had promised something.
+
+That was the part worth remembering, before accounting for what it had actually delivered. The promise had been genuine in its original architecture — access, democratisation, the levelling of the information landscape so that knowledge was no longer the exclusive property of institutions and gatekeepers. Anyone could know anything. Anyone could speak. The walls were coming down.
+
+What nobody had fully modelled was what happens when everyone speaks at once, and when speaking becomes commercially incentivised, and when the machinery built to distribute information turns out to be optimised not for truth or depth or even accuracy but for engagement — which is a clinical word for the particular neurological reward that outrage and gossip and the confirmation of existing beliefs reliably produces in the human brain.
+
+The quality diluted. This was not an opinion; it was measurable, if you had the patience to measure it. The signal-to-noise ratio shifted year by year until the noise was the dominant experience and the signal required serious excavation to locate. Everyone had a platform. Everyone had a viewpoint to push and an audience, however small, to push it to. The propaganda was not centralised anymore — it was distributed, personalised, ambient. You swam in it. It got into everything.
+
+Ronald had been swimming in it for years and he was exhausted in the specific way of a man who has been trying to find solid ground in water.
+
+---
+
+He had not had a real conversation in a long time.
+
+This was the thing that he found difficult to explain to anyone — partly because the people he might have explained it to were themselves too saturated in the information noise to slow down enough to listen, and partly because the absence of real conversation had, over time, eroded some of the social fluency required to initiate one. He had become quiet in the way that isolated people become quiet — not from preference but from the gradual atrophying of the muscles required for genuine exchange.
+
+Everything around him was talking. Nothing around him was saying anything.
+
+---
+
+The hometown had not improved in his absence.
+
+It had the specific stagnation of places that the economy had decided were not worth the energy of transformation — not dramatic enough in their decline to attract crisis funding, not strategically located enough to attract investment, just persistently depressed in the way of a patient whose condition has stabilised at a level that is technically not dying but bears little resemblance to health. The drugs were woven into the social fabric the way they always are in places with no competing industry — filling the void left by purposeful work, providing the only reliable form of relief available on short notice and without prerequisites.
+
+Ronald moved through his days with the tight economy of someone perpetually short of money and unwilling to show how much it costs him. Always somewhat broke. Always making the small calculations that broke people make — which bill waits, which purchase can be deferred, which necessity gets reclassified as a luxury this week.
+
+And then there was the feeling of being watched.
+
+He couldn't source it cleanly. It arrived in the texture of interactions — the way certain people in certain places seemed to track him with a fraction more attention than casual observation required. The way conversations seemed to reference things that he hadn't told anyone. The way the town's gossip network, which was extensive and efficient in the way that small town gossip networks always are, seemed to have a Ronald-shaped thread running through it that he could feel being pulled without being able to locate the hand doing the pulling.
+
+Whether this was real or the product of an increasingly strained mind processing an environment that had given it genuine reasons for hypervigilance, Ronald could not determine. He had stopped trusting his own assessment of the boundary between those two things.
+
+---
+
+The shopping centre was the town's main civic gathering point — the agora of a community that had nothing else to organise itself around. It had the particular atmosphere of such places: the fluorescent permanence, the recycled air, the mix of people who were there because they needed something and people who were there because they had nowhere else to be.
+
+Ronald went on a Thursday.
+
+He did the shooting with the methodical blankness of a man who has moved beyond the emotional register of what he is doing and into something that functions more like procedure. The details were what they always were — the noise, the movement, the sudden restructuring of a space from mundane to catastrophic. When it was over, people were dead and the shopping centre had joined the long national catalogue of places that would forever be described by what had happened in them on a specific day.
+
+When the police arrived, Ronald put down his weapon and raised his hands.
+
+He did not run. He did not turn the gun on himself. He stood and waited and when they reached him he offered no resistance whatsoever — the compliance of a man who has completed the only thing he had planned and has no particular view about what happens next.
+
+---
+
+The courtroom, when it came to it, was another kind of noise.
+
+Ronald pleaded insanity.
+
+The legal machinery engaged with this claim in the way legal machinery engages with most things — procedurally, at length, with the particular institutional gravity of a system that takes its own processes very seriously regardless of whether those processes are well-designed to address what is actually in front of them.
+
+What happened after that, no one could say with certainty.
+
+The case moved into the system and the system absorbed it, as it absorbs most things, without visible seam. Ronald became a file. Then a file in a larger filing system. The town continued its persistent decline. The shopping centre eventually reopened, as these places do, because commerce does not pause long for its dead.
+
+The information kept moving. The gossip kept circulating. The noise continued at its established volume.
+
+Ronald had made a very loud sound in the middle of it.
+
+By the following news cycle, it had been largely absorbed.
