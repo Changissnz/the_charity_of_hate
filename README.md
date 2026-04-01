@@ -17,6 +17,7 @@ Concluded: 04/??/2026
 11. [Respects Paid, After Inflation](#Respects-Paid-After-Inflation)
 12. [The Gossip Industry](#The-Gossip-Industry)
 13. [Kourtney Kooney's Tactic](#Kourtney-Kooneys-Tactic)
+14. [The Healthcare Altruism](#The-Healthcare-Altruism) 
 
 
 ## Death to the Meddler
@@ -781,3 +782,70 @@ Mariannas stepped over her, picked up her bag, and left to find a falafel place.
 Kourtney Kooney, the black widow in human form, the woman who had dispatched so many men from a position of warmth and false safety, died on the floor of her own elaborate staging — undone not by justice or detection or the resistance of a prepared adversary, but by the simple, total irrelevance of her gifts to one person who had not needed them, wanted them, or eaten the tacos.
 
 It was, in its way, the most honest ending available to her.
+
+
+Here's Chapter 14:
+
+---
+
+## The Healthcare Altruism
+
+"Every person has issues," Doctor Ted said to every person.
+
+He said it with the warm authority of a man who has found his thesis and sees no reason to complicate it. It was his opening gambit, his diagnostic frame, his conversational Swiss Army knife — applicable to every patient in every condition at every stage of whatever had brought them through his door. It was, in its way, a philosophy. Not a good one, but a consistent one.
+
+Doctor Ted had his heroes.
+
+He did not advertise this widely, but the evidence was present for anyone who spent time in his office — the careful arrangement of certain books, the framed prints that rewarded close reading, the specific intellectual genealogy apparent in his published papers if you knew what you were looking for. He admired Doctor Kellogg with the reverence of a man who recognised a fellow traveller across the distance of a century. Kellogg's puritan obsession with eradicating sexuality — the elaborate, almost artistic lengths to which he had gone to suppress the body's inclinations in his patients — struck Ted not as pathology but as dedication. A man so committed to his own framework that he had organised an entire professional life around enforcing it on others. Ted found this inspiring in ways he had learned not to articulate in peer-reviewed contexts.
+
+Doctor Mengele was the more private admiration. The Nazi doctor occupied a complicated space in Ted's interior gallery — not celebrated exactly, but studied with a closeness that went beyond clinical interest into something that had no clean professional name. The willingness to use patients as instruments of inquiry. The subordination of individual welfare to the larger project. Ted told himself this fascination was purely historical. He had enough self-awareness to know this was not entirely true, and enough professional insulation to ensure it didn't matter.
+
+---
+
+The healthcare industry had grown enormous.
+
+This had happened gradually and then suddenly, in the way of most institutional expansions — each increment justifiable in isolation, the aggregate visible only from sufficient distance. The Information Age had generated wealth in concentrated pools, and healthcare had positioned itself, through lobbying and narrative and the fundamental leverage of having something everyone eventually needs, to siphon generously from those pools. Funding that might have continued developing the internet's infrastructure, or educational systems, or civic technology, moved instead into the medical complex — into research budgets and administrative superstructures and the pharmaceutical advertisement apparatus that had, over decades, quietly redefined the relationship between patient and industry.
+
+The ads were everywhere. Conditions were named and marketed. Medications were promoted directly to consumers who then requested them from doctors who had their own relationships with the pharmaceutical representatives who visited their offices with samples and data and the particular social lubrication of sponsored conferences in pleasant locations. The system had achieved a kind of self-sustaining momentum — it generated the anxiety that justified the treatment that generated the revenue that funded the marketing that generated the anxiety.
+
+For some people, healthcare had become less a system of healing than a system of managed dependency. You entered it with a problem and emerged with a relationship — ongoing, expensive, monitored, never quite resolved.
+
+---
+
+Megan had entered it with genuine need and emerged with debt.
+
+The debt was not metaphorical. It was itemised, documented, and accumulating interest at a rate that interacted badly with her income in the way that medical debt and ordinary incomes tend to interact — which is to say, permanently and without mercy. She had received treatments. Some had helped partially. None had resolved anything completely. The system had processed her with the efficient indifference of something that is not designed around outcomes so much as around continued engagement.
+
+She had come to despise it with the focused clarity of someone who has had a long time to think about the source of their suffering.
+
+The city hospital lobby was large and bright and full of the particular human traffic of a major medical facility — patients and families and staff and the ambient bureaucratic motion of an institution that never fully stops. Megan walked in on a Tuesday morning and set herself on fire.
+
+The flames caught quickly. The smoke spread faster than anyone had prepared for, the alarm systems engaging in stages as the lobby transformed from a place of managed crisis into an unmanaged one. A quarter of the hospital evacuated in the controlled chaos of institutions that have drilled for emergencies but find the reality louder and less orderly than the drill. People moved through smoke-filled corridors with the specific urgency of those who are not sure how bad it is but have decided not to wait to find out.
+
+Megan burned in the lobby she had chosen.
+
+It was her statement, rendered in the only medium she had left that felt commensurate with what had been done to her.
+
+---
+
+Quagmire had his own accounting to settle.
+
+He had watched what the system had done to Megan across years of proximity and love and the particular helplessness of someone who can see the damage being done and cannot find the lever that stops it. His grief had curdled, somewhere along the way, into something with harder edges — a rage that had identified its targets with the precision that prolonged grievance eventually achieves.
+
+He came to the hospital with a handgun and a list that was not written down anywhere but was completely clear to him.
+
+Twenty nurses died. Then three doctors — Ted among them, caught in a corridor on the administrative floor with the expression of a man who had not updated his risk assessment recently enough. His two subordinates went down nearby, in quick succession.
+
+Quagmire moved through the building with the focused economy of someone who has already made peace with the endpoint of what he is doing. When he reached it, he did so without drama.
+
+He did not survive the morning.
+
+---
+
+In the investigations and the coverage that followed, the hospital issued statements about the tragedy of mental illness and the importance of seeking help. The pharmaceutical companies whose products Megan had been prescribed said nothing. The insurance apparatus that had managed her coverage said nothing. Doctor Ted's publications continued to be cited in the literature, his more private intellectual genealogy unremarked upon in the obituaries.
+
+The lobby was repaired and reopened.
+
+The system, enormous and self-sustaining and optimised for continued engagement, continued.
+
+Every person has issues.
