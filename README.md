@@ -18,7 +18,8 @@ Concluded: 04/??/2026
 12. [The Gossip Industry](#The-Gossip-Industry)
 13. [Kourtney Kooney's Tactic](#Kourtney-Kooneys-Tactic)
 14. [The Healthcare Altruism](#The-Healthcare-Altruism)
-15. [The Red Cult Spills Its Own Blood](#The-Red-Cult-Spills-Its-Own-Blood) 
+15. [The Red Cult Spills Its Own Blood](#The-Red-Cult-Spills-Its-Own-Blood)
+16. [A Bullet in the Quack Doctor's Head](#A-Bullet-in-the-Quack-Doctors-Head)
 
 ## Death to the Meddler
 
@@ -909,3 +910,79 @@ Organisations like the Red Cult do not tend to ask them.
 They absorbed the loss, closed the gap in their structure, and continued.
 
 The blood it had spilled was its own, and it did not change the direction of anything.
+
+Here's Chapter 16:
+
+---
+
+## A Bullet in the Quack Doctor's Head
+
+The healthcare industry moved at the pace of institutions that have no urgent financial incentive to resolve anything quickly.
+
+This was not a conspiracy so much as a structural reality — the system was organised around ongoing treatment, ongoing medication, ongoing billing, and the perverse logic of that organisation meant that a patient who was cured was, in the most literal accounting, a lost revenue stream. Nobody sat in a room and decided this. Nobody needed to. The incentives were built into the architecture, and the architecture produced its results without requiring anyone to be consciously villainous about it.
+
+The results, for some people, were catastrophic.
+
+---
+
+The man had a name but by the end it had stopped mattering, which is its own kind of violence.
+
+He had been a college student — not a spectacular one, not a failing one, just a person moving through the institutional machinery of higher education with the ordinary mixture of ambition and uncertainty that characterises most people at that stage. The psychological experiment had been run by the university's research department with the standard documentation and the standard ethical disclaimers and the standard assumption that the standard protocols were sufficient.
+
+They were not sufficient.
+
+The chemical exposure — because that is what it was, a poisoning, however academically administered — produced effects that the research team logged as data and the man experienced as the beginning of the end of his life as he had understood it. He sought help. This was the reasonable thing to do. He went to the institution that was supposed to provide it, and the institution — already networked into the hospital system, already in the kind of administrative relationship with the mental health apparatus that produces coordinated referrals and shared financial arrangements — processed him accordingly.
+
+They transported him to a mental health facility.
+
+The facility diagnosed him as schizophrenic.
+
+This was wrong. The cause of his symptoms was chemical — addressable, in principle, through treatment that targeted what had actually happened to him. But chemical poisoning from a university experiment was a liability. Schizophrenia was a diagnosis. The former implied institutional culpability. The latter implied a pre-existing condition, a brain that had failed on its own terms, a situation the university could position itself as having tried to help with rather than having caused.
+
+The diagnosis held.
+
+The university expelled him.
+
+---
+
+Ten years.
+
+He spent ten years in the house where he had grown up, under his parents' roof, unemployed and medicated for a condition he did not have with drugs calibrated for a brain that was not the problem. The medication produced its own effects — the flatness, the cognitive slowing, the specific quality of absence that antipsychotics impose on people who are not psychotic and whose brain chemistry responds to them accordingly. He was, during those years, less himself than he had ever been. The chemical that had damaged him was compounded now by the chemicals administered to address the wrong diagnosis of that damage.
+
+His parents aged around him. The house became smaller. The world outside continued without him, accumulating the years of employment and experience and social connection that he was not accumulating, widening the gap between where he was and where he might have been until the gap became, in practical terms, uncrossable.
+
+He was not passive during this period. He appealed. He contested the diagnosis through the available channels — letters, second opinions sought with money he didn't have, conversations with lawyers who told him what the litigation would cost and what the odds were. The channels were narrow and the institutional resistance was organised and what he encountered, every time he pushed, was the coordinated immovability of systems that have decided on a version of events and built their paperwork around it.
+
+He saved money slowly. This took the discipline of a man with very little else to apply his discipline to.
+
+---
+
+He bought the firearm legally, which was its own comment on the system's attentiveness.
+
+He began at home.
+
+He killed his family in the house that had become, across a decade, both his refuge and his cage — the people who had housed him and watched him and loved him in the helpless way of people watching someone they love be processed by a machine they cannot stop. Whether he saw this as mercy or punishment or simply the necessary clearing of a slate, he did not record.
+
+The doctor's office was next.
+
+He shot the doctor ten times in the face. This was not efficient — it was emphatic. A statement rendered in the only language left available to him after ten years of official statements rendered in the language of forms and hearings and diagnoses had produced nothing but the continued administration of the wrong treatment for the wrong condition. Ten shots for the spectacular failures. One for each year, if you wanted to count it that way.
+
+The college security officers who had been part of the machinery of his expulsion — who had participated, in their own institutional capacity, in the management of his removal from the place where this had begun — he found and killed with the methodical thoroughness of a man working through a list he has had a long time to compile.
+
+Then he drove to the police station.
+
+The explosive vest took out the main lobby. Five officers died in the blast. The man died with them, at the centre of it, in the place he had chosen as the final punctuation of a decade-long argument with every institution that had touched his life and left it worse.
+
+---
+
+The investigation that followed reconstructed his history with the confident hindsight that investigations always bring to bear — the experiment, the misdiagnosis, the expulsion, the decade of stalled life. A toxicologist, reviewing the original experiment records, noted in a supplementary report that the chemical exposure could plausibly have produced the symptoms that had been diagnosed as schizophrenia.
+
+This report was filed.
+
+It did not reopen anything.
+
+The university issued a statement about the tragic consequences of untreated mental illness. The mental health facility noted that their diagnosis had been made in good faith based on the presenting symptoms. The doctor's practice was taken over by a colleague.
+
+The machinery that had produced him continued producing.
+
+Somewhere in its intake system, another person was being processed.
