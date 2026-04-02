@@ -21,6 +21,7 @@ Concluded: 04/??/2026
 15. [The Red Cult Spills Its Own Blood](#The-Red-Cult-Spills-Its-Own-Blood)
 16. [A Bullet in the Quack Doctor's Head](#A-Bullet-in-the-Quack-Doctors-Head)
 17. [How Daniel Declined Sex](#How-Daniel-Declined-Sex)
+18. [Identity Issues Gone Bad](#Identity-Issues-Gone-Bad)
 
 ## Death to the Meddler
 
@@ -1059,3 +1060,85 @@ Nothing in the report explained it, exactly.
 These things rarely explain themselves exactly.
 
 They just accumulate, and then they don't.
+
+Here's Chapter 18:
+
+---
+
+## Identity Issues Gone Bad
+
+Jameson had spent most of his life feeling like a rough draft of something that hadn't been finished yet.
+
+It wasn't one thing. It was the aggregate — the sum of a dozen different ways in which the person he appeared to be on the outside failed to match anything he recognised on the inside, or failed to measure up to the external standards the world kept presenting him with, or both simultaneously, which was the most exhausting configuration.
+
+He wasn't built like the Black athletes he saw celebrated on every screen — the physical authority of the football players, the fluid enormity of the basketball players, the way those bodies seemed to announce themselves as exactly what they were without apology or qualification. Jameson's body made no such announcements. It was slight and uncertain and Thai in its particular construction, and in the specific social geography of his adolescence, these were not qualities that translated into legibility or respect.
+
+He wasn't sharp in the way he associated with the Slavic classmates he observed — the particular quality of mathematical and structural intelligence that seemed, to his probably unfair perception, to come more naturally to them than to him. He was intelligent, but not in ways that felt like they counted in the currency the world preferred.
+
+And then there was his name. Jameson. It sat on him like a coat belonging to someone else — a name that implied a person he had no particular relationship to, ethnically, temperamentally, or in the growing private awareness of who he actually was underneath all the layers of what he was supposed to be.
+
+---
+
+Senior prom was the first time several things became clear simultaneously.
+
+The homosexual sex was one clarity — uncomplicated in its way, unregretted, a door opening onto something that felt, for the first time in his experience, like an honest transaction between his interior and his exterior life. He had no ambivalence about it. It was simply true.
+
+The other clarity was deeper and had been waiting longer. He knew, in the aftermath of that night, with the specific certainty of knowledge that arrives not as a conclusion but as a recognition — that he wanted to be a woman. Had wanted to be a woman. That this was not a new desire but an old one that had finally found the conditions to surface.
+
+He filed both of these things away and continued.
+
+---
+
+College gave him room he hadn't had before.
+
+He found the gay sex easily enough — college provides most things easily enough if you know where to look and have decided to look — and each encounter was its own small confirmation of the self he was assembling, piece by piece, in the gaps between his official life. He was not out in any comprehensive way. He managed his public presentation with the careful economy of someone who has learned that disclosure has costs and has decided to control the timing.
+
+He studied. He performed adequately at the performance of being Jameson. He graduated.
+
+---
+
+The job was better than he had expected, which surprised him enough that he spent the first several months waiting for the catch. The catch didn't come. The money accumulated with the slow reliability of a process that is simply working, and Jameson — who had spent so many years watching processes fail to work — found this quietly, almost unbearably moving.
+
+He knew what he was saving for.
+
+The gender reassignment surgery was not a decision so much as a destination he had been moving toward since prom night. The process was lengthy and medical and bureaucratic and at various points dehumanising in the specific way that medical bureaucracy can be dehumanising, and he moved through all of it with the patience of someone for whom the destination justifies the distance.
+
+He came out of it as Shaniah.
+
+The name fit in a way that Jameson never had. She wore it like something tailored — not a costume but a correct garment, the right size, the right shape. She was thirty-one and newly herself and the world looked, from this vantage point, like it might contain things it had not previously seemed to contain.
+
+---
+
+There was a man from high school.
+
+There is always, in these stories, a particular person who represents something — a road not taken, a version of belonging that was withheld, a face that got attached to the idea of being wanted before the person doing the wanting understood themselves well enough to know what they actually needed. For Shaniah, it was him.
+
+She found him, which was not difficult in the age of social media and the persistent geographical inertia of people who don't leave where they grew up. She approached him with the confidence of someone who has been through enough to have earned confidence, and who is aware of how she looks now, and who believes, perhaps reasonably, that the person she has become deserves a different reception than the person she had been.
+
+He rejected her.
+
+The reasons he gave, or didn't give, are not the point. The point is the rejection itself — the specific, crushing familiarity of it, arriving now, after everything. After the college and the job and the money saved and the surgery and the name and the decade of becoming. After all of it, the same answer.
+
+---
+
+Shaniah had not worked this hard to be told no.
+
+This was not vanity, exactly, or not only vanity. It was the mathematical impossibility of accepting that the ledger could still come out this way — that you could pay this much, change this much, survive this much, and still arrive at the same result that had always been available without any of the effort. It violated something she had structured her understanding of the world around.
+
+She killed him on a Tuesday night — a stabbing, close and personal, nothing distant about it. The intimacy of the method was its own statement, though she did not articulate it as such.
+
+Then she slit her own throat.
+
+She had not planned to survive it. That much was apparent from the scene, from the positioning, from the absence of anything that suggested she had considered an aftermath. She had planned only this — the end of him, the end of her, the closing of an account she had been keeping since high school.
+
+The police report described the scene in the clinical language of police reports.
+
+It noted the surgery. It noted the name. It noted the man from high school and the apparent history between them.
+
+It did not note — because police reports do not note such things — the specific weight of arriving at the end of a long journey toward yourself only to find that the world at the destination looks, in the ways that matter most, exactly like the world you left.
+
+Shaniah had become, finally and completely, who she was.
+
+It had not been enough.
+
+That was the saddest arithmetic in the novella so far.
