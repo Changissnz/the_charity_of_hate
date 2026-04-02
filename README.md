@@ -23,6 +23,7 @@ Concluded: 04/02/2026
 17. [How Daniel Declined Sex](#How-Daniel-Declined-Sex)
 18. [Identity Issues Gone Bad](#Identity-Issues-Gone-Bad)
 19. [How William Repaid His Hometown](#How-William-Repaid-His-Hometown)
+20. [Chelsea the Transvestite](#Chelsea-the-Transvestite)
 
 ## Death to the Meddler
 
@@ -1219,3 +1220,85 @@ He had been kind.
 He had also been left, for long enough and thoroughly enough, to become something else.
 
 The hometown buried its dead and the beach reopened and the screens continued their patient work on whoever was watching.
+
+Here's Chapter 20:
+
+---
+
+## Chelsea the Transvestite
+
+Bob had started life with the ordinary expectations of someone who hadn't yet learned how specifically the world could disappoint a person.
+
+The high school years had done their work on him early. The prank his buddies had pulled — the kind that announces itself as harmless and reveals itself, in the years of carrying it, as something considerably less so — had left a mark of the invisible kind, the sort that doesn't show up in any record but restructures a person's relationship to trust in ways that compound quietly across subsequent years. And then there were the local cops, gay and conducting their affairs through the cover his proximity provided them, using him as a prop in an arrangement he hadn't consented to and couldn't easily exit. He had learned early that institutions and the people inside them would use the available material, and that being available material was a condition to be avoided at all costs.
+
+College had been possible but barely. The courseload pressed against the limits of what one person could sustain without the cushion of financial ease or social support, and Bob had neither. He moved through it in the grinding, joyless way of someone for whom education has become purely instrumental — a thing to be completed rather than experienced, a credential to be obtained through sheer endurance. Relationships had no place in the available bandwidth. He crossed the finish line alone and lighter than he should have been.
+
+---
+
+Chelsea was a T in the LGBT — a transvestite navigating the same institutional landscape Bob was navigating, which should have made them natural allies and instead made them cautious acquaintances circling each other with the wariness of people who have both learned not to trust easily.
+
+Bob didn't care about orientation. This was genuine rather than performed — he had arrived at a place in his thinking where the sexual and gender configurations of the people around him registered as essentially irrelevant data, crowded out by the categories he actually found meaningful and dangerous.
+
+He had three.
+
+The impotent, dishonest, low-level government bureaucrat — his father's type, the man who occupies a position of minor authority and exercises it with maximum petty obstruction while being incapable of any genuine risk or accountability. Men who had just enough power to be harmful and not enough courage to be honest about anything.
+
+The ill-tempered bourgeois woman who wants command but won't accept exposure — the type that positions itself at the centre of decisions while maintaining careful distance from consequences, who wants the authority without the vulnerability that authority is supposed to entail. Dangerous in the specific way of people who create liability for everyone around them while remaining insulated from it themselves.
+
+The insecure woman who weaponises opinion — the one who voices her assessments not to contribute but to wound, whose commentary is calibrated to destabilise rather than to illuminate. Bob had encountered enough of these to have developed a taxonomy of their methods.
+
+And then the cutthroat backstabbing minority — and he was precise about this category, careful to distinguish between people navigating rigged systems through legitimate if aggressive means and people who had simply adopted the corruption of those systems as their own operating method. The institutions were rigged for the rich and the majority; he understood this and did not hold the basic fact of competitive navigation against anyone. What he held against people was the specific choice to cheat and cut in line and call it survival when it was actually just a different form of the same predation being practised on them.
+
+Chelsea, in Bob's assessment, might have been any of these things. Might also have been none of them. He observed Chelsea with the careful attention of someone who has decided that everyone is a potential agent of something until demonstrated otherwise, and his suspicion that Chelsea was connected to the deep state — that the proximity was not accidental, that the friendship was being used as a monitoring mechanism — settled in and calcified without ever being confirmed or refuted.
+
+He graduated with the suspicion intact and Chelsea at a geographic distance and the question unresolved, which was how most of Bob's questions ended.
+
+---
+
+The media found him afterward in the way media finds people who have been previously flagged by any kind of institutional process — the closet homo narrative, the reject narrative, the assembly of a public identity from the most damaging available fragments. Bob read these pieces with the affectless recognition of someone watching a process he had always known was possible being applied to him specifically.
+
+He did not care. That was the important development. The caring had worn away, and what was left underneath was something quieter and more dangerous than anger — a cold, patient purposefulness that had found its objects and was now simply a matter of time and preparation.
+
+He had become genuinely obsessed with firearms. The drone technology had come through his Ukrainian contact — a man who had learned autonomous swarm operation in a conflict that had pioneered it, and who had found in Bob an apt and attentive student. The physics of coordinated drone deployment, the logic of autonomous targeting, the specific operational poetry of multiple simultaneous detonations across a defined geography — Bob absorbed all of it with the focus he had never quite been able to apply to his college courseload.
+
+He was, it turned out, gifted at this.
+
+---
+
+He began with his parents.
+
+This detail requires no elaboration. The father of the impotent bureaucrat type was the original instance of the category, and the settling of that account was the first item on a list that Bob had been composing for years.
+
+He drove to the local hangout — the place frequented by the Chinese, Italian, and Mexican communities that overlapped in that particular Florida geography — and deployed the drone swarm from a distance that kept him entirely outside the perimeter of what followed. The bombs attached to the drones detonated in coordinated sequence, the autonomous targeting doing what it had been programmed to do with the precision his Ukrainian contact had promised. The Florida cops, working backward from a scene that looked like nothing in their operational experience, struggled to construct a coherent picture of what had happened or who had authored it.
+
+Bob was already driving north.
+
+---
+
+New England received him without fanfare.
+
+He had Chelsea's address through means that the subsequent investigation would spend considerable time reconstructing. He entered the house quietly, with the silenced shotgun, and killed Chelsea in a manner that was quick and left no opportunity for the conversation that Bob had, in any case, no interest in having.
+
+Whether Chelsea had been a deep state agent, Bob did not stay to determine. It no longer mattered as a factual question. What mattered was the category, and Chelsea occupied it in Bob's accounting, and the accounting was being settled.
+
+---
+
+Washington received him the way Washington receives everyone — indifferently, monumentally, with the vast self-regard of a city that has been told it is important for so long that it has mistaken the telling for a fact about the universe rather than a political arrangement.
+
+He chose the Jefferson Memorial with the deliberateness of a man making a statement he has thought about carefully. Jefferson — the idealist, the slaveholder, the author of self-evident truths that had not, in Bob's experience, been particularly evident in their application to him or anyone like him. The monument to the gap between American declaration and American practice.
+
+The explosive vest detonated on the steps in the afternoon light, with tourists nearby and the Tidal Basin behind him and the dome of the memorial absorbing the blast in the way that large stone structures absorb such things — sustaining damage, remaining standing, continuing to be what it had been while what had been Bob ceased to exist in the plaza before it.
+
+---
+
+The investigation was federal, multi-jurisdictional, and extensive.
+
+It connected Florida to New England to Washington in the way that federal investigations eventually connect things — slowly, with the accumulated weight of forensic and digital evidence assembled by people with the resources and the patience that Bob had correctly assessed the Florida cops did not have.
+
+The drone swarm technology became the centrepiece of the official report — a new category of domestic threat, a tactical innovation that the relevant agencies noted with the particular institutional concern of organisations that have just discovered their frameworks need updating.
+
+Bob himself received a paragraph near the end. The grievances, the history, the father, the media coverage, the Ukrainian contact. The profile of a man who had been, in the accounting of the report, failed by enough things and in enough ways that what followed had a certain grim coherence.
+
+The Jefferson Memorial was repaired.
+
+The gap between declaration and practice, which had been there before Bob arrived at its steps, remained exactly where it had been.
