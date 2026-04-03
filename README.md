@@ -25,6 +25,7 @@ Concluded: 04/02/2026
 19. [How William Repaid His Hometown](#How-William-Repaid-His-Hometown)
 20. [Chelsea the Transvestite](#Chelsea-the-Transvestite)
 21. [Answer to This](#Answer-to-This)
+22. [An Unfortunately Successful Jewish Businessman](#An-Unfortunately-Successful-Jewish-Businessman)
 
 ## Death to the Meddler
 
@@ -1317,3 +1318,39 @@ The masked man stood over him for a moment, the gun empty, the street silent in 
 Then he walked away.
 
 Nobody stopped him.
+
+Here's Chapter 22:
+
+---
+
+## An Unfortunately Successful Jewish Businessman
+
+Antisemitism had never really left the West.
+
+It had gone through periods of being socially inadmissible — driven underground, rebranded, expressed in coded language that maintained deniability while conveying the original meaning to anyone listening for it. But the infrastructure of the hatred was always there, patient and waiting, ready to resurface when the conditions were right. The conditions, in the years following the AI boom, were increasingly right.
+
+The West had a specific and persistent problem with its own contradictions. Its politicians spoke in the language of ideals — meritocracy, opportunity, the level playing field — while its corporations operated on entirely different principles, importing foreign labour where it was cheaper, exporting production where it was more profitable, playing identity politics with its various constituencies the way a dealer plays cards: strategically, with the house's interests paramount and the players' interests managed rather than served. The gap between the stated values and the operational reality had become, for a growing number of people, impossible to ignore and easy to misdirect into familiar targets.
+
+---
+
+The businessman had done well.
+
+This was the uncomplicated part of his story. He had positioned himself correctly in the AI boom — early enough to benefit from the initial valuations, smart enough to navigate the subsequent corrections, connected enough to survive the shakeouts that had ended less fortunate competitors. His fortune was real, built on a combination of genuine technical insight and the kind of ruthless timing that gets called genius when it works and luck when it doesn't, and in his case it had worked.
+
+The boom had been full of cheats and inflation — valuations untethered from reality, products that promised transformation and delivered quarterly losses, a gold rush atmosphere that rewarded confidence over substance and speed over honesty. He had moved through this environment with the fluency of someone who understood its actual rules rather than its advertised ones, which meant he had made enemies in the specific way that people make enemies when they win in a zero-sum environment: by being the reason other people lost.
+
+He did not know the enemies he had made. This was the arrogance — not the cartoon arrogance of someone who knows they are hated and doesn't care, but the subtler arrogance of someone so accustomed to the insulation of wealth that the social temperature of the rooms he moved through never quite reached him. He said things and did things and conducted himself with the breezy confidence of someone for whom consequences had always been negotiable, and he accumulated grievances he never saw accumulating.
+
+---
+
+The League of Shadows operated in the margins of things.
+
+They found him on a Tuesday night, walking the last block back to his NYC penthouse — the short, habitual walk of a man whose security arrangements had grown comfortable with the predictability of his routine. The city moved around him with its usual indifferent noise.
+
+They were efficient about it.
+
+He went down on the sidewalk outside his building, within sight of the door, in the ambient light of a city that never goes fully dark. His fortune remained in the accounts where he had placed it. His enemies, the ones he had known about and the ones he hadn't, woke up the next morning to news alerts.
+
+The League of Shadows left no statement. They rarely did. The act was the statement, legible to those it was intended for and opaque to everyone else, which was precisely the point.
+
+The antisemitism that had never really left the West had simply, that Tuesday night, worn a different coat.
