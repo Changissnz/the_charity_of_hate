@@ -26,6 +26,8 @@ Concluded: 04/03/2026
 20. [Chelsea the Transvestite](#Chelsea-the-Transvestite)
 21. [Answer to This](#Answer-to-This)
 22. [An Unfortunately Successful Jewish Businessman](#An-Unfortunately-Successful-Jewish-Businessman)
+23. [Friends Do Not Run Rackets Around Friends](#Friends-Do-Not-Run-Rackets-Around-Friends)
+24. 
 
 ## Death to the Meddler
 
@@ -1354,3 +1356,63 @@ He went down on the sidewalk outside his building, within sight of the door, in 
 The League of Shadows left no statement. They rarely did. The act was the statement, legible to those it was intended for and opaque to everyone else, which was precisely the point.
 
 The antisemitism that had never really left the West had simply, that Tuesday night, worn a different coat.
+
+## Friends Do Not Run Rackets Around Friends
+
+The day was bright in the way that certain days are bright — indifferently, without regard for what is happening beneath the light.
+
+Randy walked over to Tyler's house with the unhurried gait of someone paying a casual visit, which was what it looked like from the outside and was not what it was from the inside. From the inside it was the final movement of something that had been in motion for a long time, arriving now at its destination with the terrible momentum of things that have been building quietly and have finally run out of quiet.
+
+---
+
+He had been burying the hatred for long enough that it had become structural — not an emotion he experienced in peaks and valleys but a foundation, something load-bearing in the architecture of how he moved through the world. Tyler and his friends occupied a specific place in it. Not the top. Not the original source. But close enough, and available, which in the geography of Randy's grievance had come to matter more than precision.
+
+Friendship had stopped meaning anything to Randy at a point he could not precisely identify, which was itself a kind of violence — the inability to locate the moment something important died. He had watched American institutions perform their betrayals with the patient thoroughness of systems that have been doing this long enough to have refined it, and he had watched the people around him absorb those betrayals and call the absorption resilience and keep going, and he had found, at some point, that he could no longer participate in that particular performance.
+
+The individualism was what galled him most at the philosophical level. The West had built its entire self-mythology around the sovereign individual — the self-made person, the pulled-up bootstraps, the meritocratic ideal in which what you achieved was the direct and honest product of what you were and what you did. And then the same West had watched its elites construct, during the AI boom and before it and after it, the most comprehensive and efficient mechanism for concentrating opportunity in the hands of the already-advantaged that any economy had ever produced, and had called that mechanism innovation, and had given it awards.
+
+Randy had watched this with the focused attention of a man watching a card trick who has already seen how it's done.
+
+---
+
+Project Onion Gag was the layer beneath the layer.
+
+He had become aware of it gradually — the awareness assembling itself from a hundred small interactions that individually could be explained away and collectively could not. It was an AI research project. That much he had been able to determine. It had his data — not some of it, not the publicly available surface of him, but the critical details, the specific and private architecture of his life that should not have been accessible to a research program and was. And the participants — because there were human participants, people who interfaced with the AI's outputs and acted on them in the field — would interact with Randy with a specific quality of sardonic insincerity, the performance of knowing things about him, the subtle signalling of access to his interior life. Close enough to confirm. Deniable enough to never constitute proof.
+
+He did not know who had authorised it. He did not know which institution sat at the centre of it. He had pulled at threads and found more threads and at no point had he found the room where the decision had been made to do this to him.
+
+Tyler was not the architect of Project Onion Gag. Randy knew this with reasonable certainty. Tyler was a friend — had been a friend — and was, at worst, a peripheral participant in the social ecosystem through which such projects sometimes operated, using existing relationships as cover and conduit. At worst. Randy had spent enough time in the space of not knowing to have lost the ability to hold the distinction between complicity and proximity with the care it deserved.
+
+Tyler had gotten into his crosshairs.
+
+This was the phrase Randy used, in the interior monologue that had long since replaced most of his external communication. Gotten into. As though it were Tyler's movement rather than Randy's that had produced the alignment.
+
+---
+
+He began at home.
+
+His nuclear family died in the house where he had grown up and where he had returned and where the walls held the accumulated evidence of a life that had been, in its early chapters, something other than this. He moved through the rooms with the dissociation of someone who has separated the act from its meaning, who has placed the meaning somewhere else temporarily so that the act can be completed.
+
+Then he drove to Tyler's house on the bright day.
+
+Tyler answered the door with the expression of someone who sees a friend and has not yet processed that the category no longer applies. Randy killed him in the doorway, which was becoming, across the chapters of this novella, a recurring geography of ending — the threshold, the liminal space between inside and outside, the place where one thing becomes another.
+
+Randy sat down on Tyler's front step afterward.
+
+The neighbourhood was quiet. The bright day continued.
+
+He turned the gun on himself and the day continued without him, indifferently, as days do.
+
+---
+
+The investigation was brief in the sense that the facts were not difficult to establish. The motive was harder. The Project Onion Gag thread, when investigators pulled it, produced the institutional resistance that such threads reliably produce — the careful vagueness, the compartmentalised deniability, the documentation that confirmed a program's existence while obscuring its scope and its specific victims.
+
+The program was noted in the file.
+
+No action was taken.
+
+Randy had known this would be the outcome. He had known it before he walked over to Tyler's house on the bright day. He had known it the way you know things that the system has taught you through repetition — not as a belief but as a demonstrated fact.
+
+He had not acted because he expected a different outcome.
+
+He had acted because the cost of not acting had finally exceeded the cost of acting, and the arithmetic, once it tipped, did not tip back.
