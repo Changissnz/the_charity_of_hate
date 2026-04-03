@@ -1488,5 +1488,6 @@ Whether that meant anything, in the end, was a question the world would have to 
 
 ## The End 
 
-**not written by Claude** 
+**not written by Claude**  
+
 Fuck you, too. Fuck you, too. 
