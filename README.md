@@ -28,6 +28,7 @@ Concluded: 04/03/2026
 22. [An Unfortunately Successful Jewish Businessman](#An-Unfortunately-Successful-Jewish-Businessman)
 23. [Friends Do Not Run Rackets Around Friends](#Friends-Do-Not-Run-Rackets-Around-Friends)
 24. [The Black Hand Society Agent, Dara Creighton](#The-Black-Hand-Society-Agent-Dara-Creighton)
+25. [Enabling Tyranny](#Enabling-Tyranny)
 
 ## Death to the Meddler
 
@@ -1462,3 +1463,57 @@ The Black Hand was named in the classified summary. In the public report, a reda
 The rectangle answered no questions.
 
 It raised, for anyone paying attention, quite a few.
+
+## Enabling Tyranny
+
+Vincent Chang had arrived at college with the cautious optimism of someone who has been told, often enough to half-believe it, that education is the variable that changes outcomes.
+
+It changed his, though not in the direction he had been promised.
+
+---
+
+The West, as Vincent came to understand it across four years of undergraduate study, was in the business of manufacturing consent through the outsourcing of its contradictions. It funded provocateurs — intellectuals, activists, media personalities — whose function was to make impossible promises about freedom while keeping the actual mechanisms of freedom carefully out of reach. The language of liberation was everywhere. The substance of it was distributed according to the same logic as everything else: to those who already had enough to acquire more.
+
+He had tried to keep his distance from the foreign Asian students on campus. This was its own complicated calculation — the desire to be seen as an individual rather than as a representative of a demographic category, the awareness that proximity to other Asians would activate certain assumptions in the people around him that he preferred to avoid. He wanted to be Vincent Chang, not an instance of a type.
+
+The campus had not cooperated with this preference.
+
+---
+
+His professors were, in the main, Jewish and white — a demographic composition he had not initially attached significance to and had gradually found impossible to ignore as the pattern of his academic experience accumulated. The coldness was not always overt. The condescension was not always loud. It operated in the register of low-grade, deniable unfairness — the grade that came back two points below what the argument warranted, the seminar intervention that was received differently depending on whose mouth it came from, the persistent, exhausting sense of being assessed by criteria that were not the stated ones.
+
+He hated the far-right for what it had done to the economic climate — the aggravation of already fragile conditions, the scapegoating that made constructive analysis impossible, the way it had poisoned the atmosphere for everyone who didn't fit its preferred demographic profile. And he hated the left-wing with an equal and different fury — for substituting genuine liberal freedom with a social program architecture that surveilled and managed and nudged and, in his direct experience, harassed. The left had looked at Vincent Chang and seen a subject for intervention rather than a person to be left alone. It had helped him in the ways it wanted to help him, which were not the ways he needed, and had monitored him in the process.
+
+Both sides had decided they knew what he was. Neither had asked.
+
+---
+
+The town was its own category of grievance.
+
+It treated him with the pathetic condescension of a place that has decided someone does not fully belong in it without being able to articulate the reason honestly. The economic logic was simple and Vincent had reduced it to its simplest form: no job meant no loyalty. This was not cynicism — it was the honest acknowledgment of a transactional relationship that the town had always understood as transactional while expecting him to experience as communal. And when there was a job, the terms under which he was expected to perform it carried a quality of assumption — about his deference, his gratitude, his willingness to absorb indignities in exchange for the privilege of employment — that reminded him of arrangements from a history he had not personally participated in but whose shape he recognised.
+
+His mother was the final layer.
+
+He did not elaborate on this to anyone. The specifics remained private in the way that the deepest wounds tend to remain private — too close to the centre of things to be exposed to the imprecision of other people's understanding. What could be said was simply that she was there, in the architecture of everything that had made him, and that her presence in that architecture was not a stabilising one.
+
+She was, in the end, the straw.
+
+---
+
+Vincent Chang did not announce what was coming.
+
+He had watched enough of the men in this novella announce things — manifestos, final statements, verses from scripture, last words delivered to empty rooms — and he had found the announcements wanting. They were bids for understanding from a world that had demonstrated, consistently, that it was not interested in understanding him. He had no interest in making that bid.
+
+He settled his accounts quietly and without ceremony.
+
+He began with his mother.
+
+Then he moved outward — through the town that had treated him pathetically, through the campus where the coldness and condescension had been administered in the careful language of academic professionalism, through the specific offices and specific rooms where specific people had applied their unfairness with such confident impunity.
+
+When it was over, Vincent Chang sat down in the last room and waited for what came next with the composure of a man who has completed the only task he had left.
+
+The tyranny he had spent his adult life navigating had been enabled, he had concluded, not by its architects alone but by the vast, comfortable majority who had watched it operate and called their watching neutrality.
+
+He had declined to be neutral.
+
+Whether that meant anything, in the end, was a question the world would have to answer without him.
