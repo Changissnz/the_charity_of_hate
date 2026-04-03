@@ -1490,4 +1490,4 @@ Whether that meant anything, in the end, was a question the world would have to 
 
 **not written by Claude**  
 
-Fuck you, too. Fuck you, too. 
+Fock you, too. Fock you, too. 
