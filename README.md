@@ -24,6 +24,7 @@ Concluded: 04/02/2026
 18. [Identity Issues Gone Bad](#Identity-Issues-Gone-Bad)
 19. [How William Repaid His Hometown](#How-William-Repaid-His-Hometown)
 20. [Chelsea the Transvestite](#Chelsea-the-Transvestite)
+21. [Answer to This](#Answer-to-This)
 
 ## Death to the Meddler
 
@@ -1302,3 +1303,17 @@ Bob himself received a paragraph near the end. The grievances, the history, the 
 The Jefferson Memorial was repaired.
 
 The gap between declaration and practice, which had been there before Bob arrived at its steps, remained exactly where it had been.
+
+## Answer to This
+
+"Answer to this," said the masked man.
+
+He emptied the handgun cartridge into the activist with the quiet finality of someone who has decided that the conversation is over — that the petitions and the marches and the speeches and the op-eds and the organised grievance and the carefully worded demands have run their course and arrived at this, which was always, perhaps, where they were going to arrive.
+
+The activist went down.
+
+The masked man stood over him for a moment, the gun empty, the street silent in the specific way streets go silent when something has just happened that everyone present understands cannot be taken back.
+
+Then he walked away.
+
+Nobody stopped him.
