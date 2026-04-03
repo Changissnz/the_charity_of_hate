@@ -27,6 +27,7 @@ Concluded: 04/03/2026
 21. [Answer to This](#Answer-to-This)
 22. [An Unfortunately Successful Jewish Businessman](#An-Unfortunately-Successful-Jewish-Businessman)
 23. [Friends Do Not Run Rackets Around Friends](#Friends-Do-Not-Run-Rackets-Around-Friends)
+24. [The Black Hand Society Agent, Dara Creighton](#The-Black-Hand-Society-Agent-Dara-Creighton)
 
 ## Death to the Meddler
 
@@ -1415,3 +1416,49 @@ Randy had known this would be the outcome. He had known it before he walked over
 He had not acted because he expected a different outcome.
 
 He had acted because the cost of not acting had finally exceeded the cost of acting, and the arithmetic, once it tipped, did not tip back.
+
+## The Black Hand Society Agent, Dara Creighton
+
+The Black Hand had been operating in the margins of governmental authority for long enough that most of the agencies which had originally sanctioned it had lost track of what it was currently doing.
+
+This was by design.
+
+---
+
+Dara Creighton had been engineered for infiltration in the most literal sense of that word. The genetic modification program that had produced her was documented in files that required three separate security clearances to access, and the documentation was written in the careful language of people who understand that what they are describing will sound, to anyone outside the program, like science fiction. She was built to be trusted — her appearance calibrated, her neurological profile optimised for social mimicry, her capacity for sustained deception operating at a level that conventional psychological screening could not detect because conventional psychological screening had been designed to identify deception in humans, and Dara Creighton was only partly that.
+
+She arrived at the university in September with a cover identity that had been constructed with the thoroughness of something that had taken considerably longer to build than the academic year it was designed to survive.
+
+---
+
+The methodology was psychological rather than physical — a sustained, iterative process of identification, profiling, and conditioning applied to individual targets across weeks and months of carefully managed interaction. She was patient in the way that only engineered things are patient, without the fatigue or the doubt that makes human patience eventually falter.
+
+Each man she identified was assessed first. Vulnerability mapping — the specific architecture of his insecurities, his grievances, his susceptibility to particular varieties of attention and validation. Then came the conditioning: prolonged exposure to manufactured intimacy, to the specific emotional frequencies that the Black Hand's behavioral research division had identified as most effective at producing dependency and, ultimately, the complete dissolution of independent judgment.
+
+By the end of the year there were two hundred and eleven of them. Each one compromised at the foundational level — not merely manipulated but restructured, their decision-making apparatus so thoroughly colonised by the conditioning that the boundary between their own volition and Dara's instructions had ceased to be meaningful.
+
+They went about their lives on campus and looked, to everyone around them, entirely normal.
+
+---
+
+The signal came on a Thursday morning in April.
+
+Firearms and explosives had been pre-positioned through Black Hand logistics channels over the preceding months — moved in pieces, stored in locations distributed across the campus and the surrounding city, assembled and ready. The two hundred and eleven moved to their pre-assigned positions with the coordination of people who are not coordinating consciously but whose conditioning has produced the same result.
+
+The killing spread outward from the campus in waves.
+
+Five thousand died on the university grounds before the first coherent law enforcement response was established. By the time containment was achieved, the violence had moved through twelve thousand people in the surrounding city.
+
+Dara Creighton was not present for any of it. She had left the campus the previous evening with the unhurried calm of someone whose work is finished, carrying nothing that connected her to anything, disappearing into the infrastructure of an organisation that had been disappearing its operatives for decades.
+
+---
+
+The investigation that followed was the largest domestic inquiry since events that the relevant agencies preferred not to name in the same breath as this one. The two hundred and eleven were identified through the process of identifying everyone who had survived and participated. The psychological profiles produced by the forensic behavioral teams were, to a one, baffling — the conditioning was unlike anything in the existing literature, its mechanisms not immediately legible to analysts trained on conventional radicalisation models.
+
+Dara Creighton's cover identity dissolved under scrutiny into a series of dead ends. The photograph on her university ID matched no database. The background documentation, which had passed every verification check it had been subjected to during her enrollment, did not survive forensic examination.
+
+The Black Hand was named in the classified summary. In the public report, a redaction appeared in its place — a black rectangle sitting in the middle of a sentence, the visible evidence of something that the people who knew what it was had decided the public was not ready to know.
+
+The rectangle answered no questions.
+
+It raised, for anyone paying attention, quite a few.
