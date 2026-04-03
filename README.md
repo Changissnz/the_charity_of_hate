@@ -29,6 +29,7 @@ Concluded: 04/03/2026
 23. [Friends Do Not Run Rackets Around Friends](#Friends-Do-Not-Run-Rackets-Around-Friends)
 24. [The Black Hand Society Agent, Dara Creighton](#The-Black-Hand-Society-Agent-Dara-Creighton)
 25. [Enabling Tyranny](#Enabling-Tyranny)
+26. [The End](#The-End)
 
 ## Death to the Meddler
 
@@ -1517,3 +1518,7 @@ The tyranny he had spent his adult life navigating had been enabled, he had conc
 He had declined to be neutral.
 
 Whether that meant anything, in the end, was a question the world would have to answer without him.
+
+## The End 
+
+Fuck you, too. Fuck you, too. 
