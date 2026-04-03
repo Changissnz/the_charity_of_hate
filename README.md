@@ -794,11 +794,6 @@ Kourtney Kooney, the black widow in human form, the woman who had dispatched so 
 
 It was, in its way, the most honest ending available to her.
 
-
-Here's Chapter 14:
-
----
-
 ## The Healthcare Altruism
 
 "Every person has issues," Doctor Ted said to every person.
@@ -861,10 +856,6 @@ The system, enormous and self-sustaining and optimised for continued engagement,
 
 Every person has issues.
 
-Here's Chapter 15:
-
----
-
 ## The Red Cult Spills Its Own Blood
 
 Communism, in the years following the Afghanistan withdrawal, had found new footing in the United States.
@@ -920,10 +911,6 @@ Organisations like the Red Cult do not tend to ask them.
 They absorbed the loss, closed the gap in their structure, and continued.
 
 The blood it had spilled was its own, and it did not change the direction of anything.
-
-Here's Chapter 16:
-
----
 
 ## A Bullet in the Quack Doctor's Head
 
@@ -997,10 +984,6 @@ The machinery that had produced him continued producing.
 
 Somewhere in its intake system, another person was being processed.
 
-Here's Chapter 17:
-
----
-
 ## How Daniel Declined Sex
 
 Daniel had been declined so many times that the word had lost its shape.
@@ -1068,10 +1051,6 @@ Nothing in the report explained it, exactly.
 These things rarely explain themselves exactly.
 
 They just accumulate, and then they don't.
-
-Here's Chapter 18:
-
----
 
 ## Identity Issues Gone Bad
 
@@ -1151,10 +1130,6 @@ It had not been enough.
 
 That was the saddest arithmetic in the novella so far.
 
-Here's Chapter 19:
-
----
-
 ## How William Repaid His Hometown
 
 William had deserved better.
@@ -1226,10 +1201,6 @@ He had been kind.
 He had also been left, for long enough and thoroughly enough, to become something else.
 
 The hometown buried its dead and the beach reopened and the screens continued their patient work on whoever was watching.
-
-Here's Chapter 20:
-
----
 
 ## Chelsea the Transvestite
 
@@ -1322,10 +1293,6 @@ The masked man stood over him for a moment, the gun empty, the street silent in 
 Then he walked away.
 
 Nobody stopped him.
-
-Here's Chapter 22:
-
----
 
 ## An Unfortunately Successful Jewish Businessman
 
